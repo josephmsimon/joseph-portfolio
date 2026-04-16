@@ -1,2 +1,146 @@
 # joseph-portfolio
 My professional portfolio in Land Management and Valuation
+# JOSEPH MICHAEL SIMON  
+### BSc. Land Management and Valuation  
+
+📍 Tanzania | 📞 +255794515319 | 📧 josephmsimon999@gmail.com  
+
+---
+
+## 🧭 ABOUT ME  
+I am a Bachelor of Science graduate in Land Management and Valuation from Ardhi University. I am passionate about land administration, property valuation, GIS analysis, and promoting transparency and accountability in land-related activities.  
+
+I aim to apply my analytical and investigative skills to support effective decision-making and integrity in land management systems.
+
+---
+
+## 🎯 CAREER OBJECTIVE  
+To leverage my academic background in Land Management and Valuation together with strong analytical and investigative skills to promote accountability, integrity, and effective decision-making within a dynamic and reputable organization.
+
+---
+
+## 🛠️ SKILLS  
+
+- Land Valuation and Property Analysis  
+- GIS (Geographic Information Systems) – Spatial Analysis  
+- AutoCAD – Property Layout & Design  
+- Microsoft Excel (Data Analysis)  
+- eArdhi System  
+- Field Data Collection and Verification  
+- Report Writing (Valuation & Investigation Reports)  
+- Evidence Collection in Field Investigations  
+- Communication Skills (English & Swahili)  
+- Teamwork and Professional Collaboration  
+
+---
+
+## 💼 WORK EXPERIENCE  
+
+### 📌 Field Trainee – Assistant Commissioner for Land Office (ACL), Tanga  
+📅 July 2022 – August 2022  
+
+- Conducted field inspections to verify land ownership and boundaries  
+- Collected and analyzed land data for accurate records  
+- Assisted in preparation of land-related reports  
+- Demonstrated professionalism, integrity, and analytical skills  
+
+---
+
+### 📌 Field Trainee – Tanzania Posts Corporation (TPC), Tanga  
+📅 July 2023 – August 2023  
+
+- Conducted valuation of TPC buildings within Tanga region  
+- Collected and analyzed property data  
+- Assisted in preparation of valuation reports  
+- Gained practical experience in property valuation and documentation  
+
+---
+
+### 📌 Land Officer & Valuer (Trainee) – ACL Office, Tanga  
+📅 July 2024 – Present  
+
+- Organizing files and preparing official documents  
+- Receiving correspondence and managing records  
+- Reporting faulty equipment and following up repairs  
+- Providing administrative and technical support  
+- Handling visitors and directing them to relevant officers  
+
+---
+
+## 📊 PROJECTS  
+
+### 🏢 Property Valuation Project – Tanga  
+- Conducted valuation of multiple buildings  
+- Applied market-based valuation methods  
+- Prepared structured valuation reports  
+
+---
+
+### 🗺️ GIS Mapping and Spatial Analysis  
+- Created land parcel maps using GIS tools  
+- Analyzed spatial data for land use planning  
+- Supported land administration processes  
+
+---
+
+### 📑 Land Ownership Verification  
+- Conducted field inspections  
+- Verified land boundaries and ownership  
+- Documented findings for official use  
+
+---
+
+## 🎓 EDUCATION  
+
+- **Bachelor of Science in Land Management and Valuation**  
+  Ardhi University (2025) – Lower Second Class  
+
+- Advanced Certificate of Secondary Education  
+  Tanga Technical Secondary School (2021)  
+
+- Certificate of Secondary Education  
+  Usagara Secondary School (2017)  
+
+---
+
+## 🏅 PROFESSIONAL QUALIFICATIONS  
+
+- Anti-Corruption Membership Club  
+- GIS (Geographic Information Systems)  
+- Rapid Sketching  
+- AutoCAD  
+- Microsoft Excel & Word  
+- eArdhi System  
+
+---
+
+## 📞 CONTACT  
+
+📧 Email: josephmsimon999@gmail.com  
+📱 Phone: +255794515319  
+
+---
+
+## 📌 REFEREES  
+
+**Lakia Renatus Msoma**  
+Land Officer – Ilala Municipal Council  
+📞 +255763395711  
+📧 lakia.msoma@lands.go.tz  
+
+**Gerald Martin Tenga**  
+Regional Valuer – ACL Office Tanga  
+📞 +255621580580  
+📧 tengagerald@yahoo.com  
+
+**Pendo Norbert Kahessi**  
+Assistant Land Officer – ACL Office Tanga  
+📞 +255625759692  
+📧 pendo.kahessi@lands.go.tz  
+
+---
+
+## ✅ DECLARATION  
+I, Joseph Michael Simon, declare that the information provided is true and correct to the best of my knowledge.
+
+---
