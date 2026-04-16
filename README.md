@@ -36,34 +36,39 @@ To leverage my academic background in Land Management and Valuation together wit
 
 ## 💼 WORK EXPERIENCE  
 
-### 📌 Field Trainee – Assistant Commissioner for Land Office (ACL), Tanga  
-📅 July 2022 – August 2022  
-
-- Conducted field inspections to verify land ownership and boundaries  
-- Collected and analyzed land data for accurate records  
-- Assisted in preparation of land-related reports  
-- Demonstrated professionalism, integrity, and analytical skills  
-
----
-
-### 📌 Field Trainee – Tanzania Posts Corporation (TPC), Tanga  
-📅 July 2023 – August 2023  
-
-- Conducted valuation of TPC buildings within Tanga region  
-- Collected and analyzed property data  
-- Assisted in preparation of valuation reports  
-- Gained practical experience in property valuation and documentation  
+### 🏢 Assistant Commissioner for Land Office – Tanga  
+**📅 July 2022 – August 2022 | Field Trainee**  
+- Conducted field inspections to verify land ownership and boundaries.  
+- Collected and analyzed land data for accurate records.  
+- Assisted in preparing reports and handling land-related queries.  
+- Demonstrated strong analytical skills, integrity, and professionalism.  
 
 ---
 
-### 📌 Land Officer & Valuer (Trainee) – ACL Office, Tanga  
-📅 July 2024 – Present  
+### 🏢 Tanzania Posts Corporation (TPC) – Tanga  
+**📅 July 2023 – August 2023 | Field Trainee**  
+- Conducted valuation of TPC buildings within Tanga region.  
+- Collected and analyzed property data to support valuation processes.  
+- Assisted in preparation of valuation reports and documentation.  
+- Developed practical skills in property valuation, report writing, and data analysis while maintaining accuracy and professionalism.  
 
-- Organizing files and preparing official documents  
-- Receiving correspondence and managing records  
-- Reporting faulty equipment and following up repairs  
-- Providing administrative and technical support  
-- Handling visitors and directing them to relevant officers  
+---
+
+### 🏢 Assistant Commissioner for Land Office – Tanga  
+**📅 July 2024 – August 2024 | Field Trainee**  
+- Conducted detailed property inspections to assess physical condition and land use.  
+- Collected and critically analyzed market and property data for valuation decisions.  
+- Assisted in preparation of comprehensive valuation reports.  
+- Verified and cross-checked land ownership documents for authenticity and accountability.  
+
+---
+
+### 🏢 Assistant Commissioner for Land Office – Tanga (ACL)  
+**📅 July 2025 – Present | Valuer Intern**  
+- Conducting property inspections to assess condition and identify inconsistencies.  
+- Collecting and analyzing market data to support valuation decisions.  
+- Assisting in preparation of valuation reports in line with professional standards.  
+- Verifying land ownership documents to ensure authenticity and accountability.
 
 ---
 
